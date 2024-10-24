@@ -74,4 +74,4 @@ Sigo siendo el mismo e' siempre, ah (Siempre)
 Cueste lo que cueste, bitch (Viva la ¿vida?)
 Esto no es música, es droga
 Dos mil y pico, do' mil y pico (E' droga, eh, jajaja)
-(Malo' Cantore', hijos de puta)
+(Malo' Cantore', hijos de puta)aaa
